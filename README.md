@@ -38,12 +38,3 @@ Hi! I’m Kevin — an entry level Business/intelligence analyst with a backgrou
 You can follow my learning journey on: 
 
 LinkedIn: Kevin Kone
-
-
-
-
-
-
-
-
-📈 Certain sales channels have high conversion efficiency but low volume.  
